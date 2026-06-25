@@ -1,3 +1,16 @@
+hi i'm dindin i'm 16 yrs
+I'm an artist who draws both digitally and traditionally, but I mostly focus on digital art. I use any pronouns, and I'm pansexual. I speak English and Tagalog, and I know a little bit of Arabic.
+
+I'd consider myself a pretty slow person when it comes to processing information, I'm also very forgetful, so please be patient with me if I forget things.
+
+I'm also very shy, so I apologize to anyone who has tried to be friends with me but never got much of a response. I PROMISE I'M NOT IGNORING YOU ON PURPOSE!!! I'm just really awkward and I really struggle a lot on trying to start conversations, even though I genuinely want to talk to someone :,)... I may seem distant at first, but I promise I'm friendly!!!
+
+## DNI lists.
+Supports Melanie Martinez, Oliver Tree, or Wilbur Soot, Misogynistic, racist, sexist, ableist, anti-feminist, Invalidate someones pronouns, gender, or identity, Sexualizes minors or supports pedophilia, Make jokes about rape or sexual assault, xenophobic.  Zionists, supports proships or darkships, incests, pedophilic relationships, believes that fiction has no effect on reality.
+
+
+(Don't mind how messy my gh looks.. I'm too lazy to organize everything) 
+
 
 <h3 align="center" style="color:#829cc7;"> </h3>
 <p align="center">
