@@ -3,7 +3,7 @@ I'm 16 and I'm an artist who draws both digitally and traditionally, but I mostl
 
 I'd consider myself a pretty slow person when it comes to processing information, I'm also very forgetful, so please be patient with me if I forget things.
 
-I'm also very shy, so I apologize to anyone who has tried to be friends with me but never got much of a response. I PROMISE I'M NOT IGNORING YOU ON PURPOSE!!! I'm just really awkward and I really struggle a lot on trying to start conversations, even though I genuinely want to talk to someone :,)... I may seem distant at first, but I promise I'm friendly!!!
+I'm also very shy, so I apologize to anyone who has tried to be friends with me but never got much of a response,,, I PROMISE I'M NOT IGNORING YOU ON PURPOSE!!! I'm just really awkward and I really struggle a lot on trying to start conversations, even though I genuinely want to talk to someone :,)... (which is why I'm a slow responder) I may seem distant at first, but I promise I'm friendly!!!
 
 
 ## Small things about me
