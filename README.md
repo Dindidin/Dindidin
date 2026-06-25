@@ -5,6 +5,19 @@ I'd consider myself a pretty slow person when it comes to processing information
 
 I'm also very shy, so I apologize to anyone who has tried to be friends with me but never got much of a response. I PROMISE I'M NOT IGNORING YOU ON PURPOSE!!! I'm just really awkward and I really struggle a lot on trying to start conversations, even though I genuinely want to talk to someone :,)... I may seem distant at first, but I promise I'm friendly!!!
 
+
+## Small things about me
+• I REALLY hate math..
+• I play ukelele, ocarina, and flute
+• I'm a visual learner
+• I've been collecting plastic straws ever since when I was 13 yrs
+• I have Trichotillomania
+• I have a mole on my right sclera
+
+## Fandoms I'm currently in
+South Park, Deltarune, Undertale, Genshin Impact, Toy Story, No, I'm Not a Human, Metal Family, Murder Drones
+
+
 ## DNI lists.
 Supports Melanie Martinez, Oliver Tree, or Wilbur Soot, Misogynistic, racist, sexist, ableist, anti-feminist, Invalidate someones pronouns, gender, or identity, Sexualizes minors or supports pedophilia, Make jokes about rape or sexual assault, xenophobic.  Zionists, supports proships or darkships, incests, pedophilic relationships, believes that fiction has no effect on reality.
 
