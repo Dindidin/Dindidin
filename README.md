@@ -24,7 +24,7 @@ Supports Melanie Martinez, Oliver Tree, or Wilbur Soot, Misogynistic, racist, se
 
 <h3 align="center" style="color:#829cc7;"> </h3>
 <p align="center">
-  <img src="https://spotify-recently-played-readme.vercel.app/api?user=31stvyapnu3ksrco45hcwkewq45u&count=5&unique=true&v=2" width="300" alt="Recently Played Spotify"/>
+  <img src="https://spotify-recently-played-readme.vercel.app/api?user=31stvyapnu3ksrco45hcwkewq45u&count=7&unique=true&v=2" width="300" alt="Recently Played Spotify"/>
 </p>
 
 <p align="center">
