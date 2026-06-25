@@ -14,7 +14,7 @@ South Park, Deltarune, Undertale, Genshin Impact, Toy Story, No, I'm Not a Human
 
 
 ## DNI lists.
-Supports Melanie Martinez, Oliver Tree, or Wilbur Soot, Misogynistic, racist, sexist, ableist, anti-feminist, Invalidate someones pronouns, gender, or identity, Sexualizes minors or supports pedophilia, Make jokes about rape or sexual assault, xenophobic.  Zionists, supports proships or darkships, incests, pedophilic relationships, believes that fiction has no effect on reality.
+Supports Melanie Martinez, Oliver Tree, or Wilbur Soot, Misogynistic, racist, sexist, ableist, anti-feminist, Invalidate someones pronouns, gender, or identity, Sexualizes minors or supports pedophilia, Make jokes about rape or sexual assault, xenophobic,  Zionists, supports proships or darkships, incests, pedophilic relationships, believes that fiction has no effect on reality.
 
 
 <h3 align="center" style="color:#829cc7;"> </h3>
