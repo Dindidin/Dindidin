@@ -10,7 +10,7 @@ I'm also very shy, so I apologize to anyone who has tried to be friends with me 
 I REALLY hate math.. I play ukelele, ocarina, and flute, I'm a visual learner,  I've been collecting plastic straws ever since when I was 13 yrs, I have Trichotillomania, And I have a mole on my right sclera
 
 ## Fandoms I'm currently in
-South Park, Deltarune, Undertale, Genshin Impact, Toy Story, No, I'm Not a Human, Metal Family, Murder Drones
+South Park, Deltarune, Undertale, Genshin Impact, Toy Story, No, I'm Not a Human, Metal Family, Murder Drones, Sky Cotl
 
 
 ## DNI lists.
