@@ -9,9 +9,6 @@ I'm also very shy, so I apologize to anyone who has tried to be friends with me 
 Supports Melanie Martinez, Oliver Tree, or Wilbur Soot, Misogynistic, racist, sexist, ableist, anti-feminist, Invalidate someones pronouns, gender, or identity, Sexualizes minors or supports pedophilia, Make jokes about rape or sexual assault, xenophobic.  Zionists, supports proships or darkships, incests, pedophilic relationships, believes that fiction has no effect on reality.
 
 
-(Don't mind how messy my gh looks.. I'm too lazy to organize everything) 
-
-
 <h3 align="center" style="color:#829cc7;"> </h3>
 <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31stvyapnu3ksrco45hcwkewq45u&cover_image=true&theme=novatorem&bar_color=829cc7&bar_color_cover=true" width="280" alt="Currently Listening Spotify"/>
@@ -24,3 +21,8 @@ Supports Melanie Martinez, Oliver Tree, or Wilbur Soot, Misogynistic, racist, se
 <p align="center">
   <img src="IMG_6135.gif" alt="Profile Image" width="120" style="border-radius: 12px;"/>
 </p>
+
+
+(Don't mind how messy my gh looks.. I'm too lazy to organize everything) 
+
+
