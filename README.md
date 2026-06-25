@@ -1,5 +1,5 @@
-hi i'm dindin i'm 16 yrs
-I'm an artist who draws both digitally and traditionally, but I mostly focus on digital art. I use any pronouns, and I'm pansexual. I speak English and Tagalog, and I know a little bit of Arabic.
+## hi i'm dindin i'm 16 yrs
+I'm an artist who draws both digitally and traditionally, but I mostly focus on digital art. I also like arts and crafts. I use any pronouns, and I'm pansexual. I speak English and Tagalog, and I know a little bit of Arabic.
 
 I'd consider myself a pretty slow person when it comes to processing information, I'm also very forgetful, so please be patient with me if I forget things.
 
