@@ -1,5 +1,4 @@
-## you can copy my skins. idgaf
-ive seen multiple people who has been copying and obviously taking inspos from some of my ponies
+## you can take inspos or even copy my skins. idrgaf
 
 <h3 align="center" style="color:#829cc7;"> </h3>
 <p align="center">
