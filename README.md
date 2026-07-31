@@ -11,7 +11,7 @@
 </p>
 
 ## hi i'm dindin
-I'm 16 and I'm an artist who draws both digitally and traditionally, but I mostly focus on digital art. I also like arts and crafts, I use any pronouns, and I'm pansexual. I speak English and Tagalog, and I know a little bit of Arabic!
+I'm 17 and I'm an artist who draws both digitally and traditionally, but I mostly focus on digital art:P I use any pronouns, I'm pansexual, I speak English and Tagalog, and I know a little bit of Arabic
 
 I'd consider myself a pretty slow person when it comes to processing information, I'm also very forgetful, so please be patient with me if I forget things.
 
@@ -23,7 +23,7 @@ South Park, Deltarune, Undertale, Underverse, Genshin Impact, Toy Story, No, I'm
 
 
 ## DNI lists.
-Supports Melanie Martinez, Oliver Tree, or Wilbur Soot, Misogynistic, racist, sexist, ableist, anti-feminist, Invalidate someones pronouns, gender, or identity, Sexualizes minors or supports pedophilia, Make jokes about rape or sexual assault, xenophobic,  Zionists, supports proships or darkships, incests, pedophilic relationships, believes that fiction has no effect on reality.
+Supports Melanie Martinez, Oliver Tree, or Wilbur Soot, Misogynistic, racist, sexist, ableist, anti-feminist, Invalidate someones pronouns, gender, or identity, Sexualizes minors or supports pedophilia, Make jokes about rape or sexual assault, xenophobic,  Zionists, supports proships or darkships, incests, pedophilic relationships, very insensitive, transphobic, people who r under believes that fiction has no effect on reality.
 
 (Don't mind how messy my gh looks.. I'm too lazy to organize everything) 
 
