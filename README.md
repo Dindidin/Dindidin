@@ -1,4 +1,4 @@
-## you can take inspos or even copy my skins. idrgaf
+## c+h idm
 
 <h3 align="center" style="color:#829cc7;"> </h3>
 <p align="center">
