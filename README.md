@@ -18,7 +18,7 @@ I'm also very shy, so I apologize to anyone who has tried to be friends with me 
 
 
 ## Fandoms I'm currently in
-South Park, Deltarune, Undertale, Underverse, Genshin Impact, Toy Story, No, I'm Not a Human, Metal Family, Murder Drones, Sky Cotl
+GUTS & BLACKPOWDER (if someone knows this game on roblox pls friend me I BEG) South Park, Deltarune, Undertale, Underverse, Genshin Impact, Toy Story, No, I'm Not a Human, Metal Family, Murder Drones, Sky Cotl
 
 
 ## DNI lists.
