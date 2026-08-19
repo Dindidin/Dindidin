@@ -30,3 +30,5 @@ Supports Melanie Martinez, Oliver Tree, or Wilbur Soot, Misogynistic, racist, se
   <img src="IMG_6135.gif" alt="Profile Image" width="120" style="border-radius: 12px;"/>
 </p>
 
+
+I listen to classical music unironically every day. (If you don’t fw that, we can’t be friends, I’m sorry.)
