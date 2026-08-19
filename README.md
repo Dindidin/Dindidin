@@ -31,4 +31,4 @@ Supports Melanie Martinez, Oliver Tree, or Wilbur Soot, Misogynistic, racist, se
 </p>
 
 
-I listen to classical music unironically every day. (If you don’t fw that, we can’t be friends, I’m sorry.)
+I listen to classical music unironically every day
