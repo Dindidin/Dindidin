@@ -9,4 +9,5 @@
 </p>
 
 
-my gh sucks so bad oh my god im cyring
+
+im shy
