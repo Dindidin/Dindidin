@@ -1,8 +1,7 @@
 
 <h3 align="center" style="color:#829cc7;"> </h3>
 <p align="center">
-  <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31stvyapnu3ksrco45hcwkewq45u&cover_image=true&theme=novatorem&bar_color=829cc7&bar_color_cover=true" width="280" alt="Currently Listening Spotify"/>
-</p>
+  <img src="![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=31stvyapnu3ksrco45hcwkewq45u)/></p>
 
 <h3 align="center" style="color:#829cc7;"> </h3>
 <p align="center">
