@@ -8,6 +8,6 @@
   <img src="https://spotify-recently-played-readme.vercel.app/api?user=31stvyapnu3ksrco45hcwkewq45u&count=7&unique=true&v=2" width="300" alt="Recently Played Spotify"/>
 </p>
 
-don't be shy to sit next to me if you want
+
 
 
