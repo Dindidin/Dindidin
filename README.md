@@ -1,12 +1,13 @@
 ---
+
 <p align="center">
   <a href="https://dindidin.github.io/LiveStream/">
-    <img src="https://img.shields.io/badge/▶ watch my screen -172640?style=for-the-badge&logo=roblox&logoColor=white&labelColor=0a1020" alt="Watch me play"/>
+    <img src="https://img.shields.io/badge/▶%20WATCH%20MY%20SCREEN-172640?style=for-the-badge&labelColor=0a1020" alt="Watch my screen" height="55"/>
   </a>
 </p>
 
 <p align="center">
-  <sub>mostly streaming sewh or gnb</sub>
+  <sub>mostly streaming sewh or gnb </sub>
 </p>
 
 
