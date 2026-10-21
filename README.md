@@ -2,14 +2,8 @@
 
 <p align="center">
   <a href="https://dindidin.github.io/LiveStream/">
-    <img src="https://img.shields.io/badge/▶%20WATCH%20MY%20SCREEN-172640?style=for-the-badge&labelColor=0a1020" alt="Watch my screen" height="55"/>
-  </a>
-</p>
-
-<p align="center">
-  <sub>mostly streaming sewh or gnb </sub>
-</p>
-
+  <img src="https://img.shields.io/badge/▶%20WATCH%20MY%20SCREEN-292929?style=for-the-badge&labelColor=181818" alt="Watch my screen" height="55"/>
+  </a
 
 <h3 align="center" style="color:#829cc7;"> </h3>
 <p align="center">
