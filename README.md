@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-  <sub>mostly streaming sewh or gnb ♡</sub>
+  <sub>mostly streaming sewh or gnb</sub>
 </p>
 
 
