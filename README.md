@@ -1,9 +1,9 @@
 ---
 
-<h3 align="center">𖦹 Roblox</h3>
+<h3 align="center"> Roblox</h3>
 
 <p align="center">
-  <a href="[(https://dindidin.github.io/LiveStream/)]">
+  <a href="(https://dindidin.github.io/LiveStream/)">
     <img src="https://img.shields.io/badge/▶ watch my screen -172640?style=for-the-badge&logo=roblox&logoColor=white&labelColor=0a1020" alt="Watch me play Roblox"/>
   </a>
 </p>
